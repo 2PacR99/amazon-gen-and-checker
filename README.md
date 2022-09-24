@@ -1,2 +1,4 @@
 # amazon-gen-and-checker
-Amazon Gen and cheacker for lazy guys
+Noice amazon gen and checker
+
+**DISCORD LINK CUZ WE ARE MADD EPIC XD: https://discord.gg/jsunuB9 **
